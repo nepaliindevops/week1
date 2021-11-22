@@ -2,8 +2,8 @@
 
 
 ## Rough Draft By: 11/26/2021
-## Zoom on : 11/28/2021
-## LIVE: 11/29/2021
+## Zoom Recording on : 11/28/2021
+## YouTube Live: 11/29/2021
 
 
 
